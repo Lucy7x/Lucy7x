@@ -2,7 +2,7 @@
 
 hobbyista de front-end fazendo projetos por diversão.
 
-🎮 entusiasta da série Fallout e RPGs no geral  
+🎮 entusiasta de RPGs no geral  
 🎵 synthwave · jumpstyle · breakcore  
 
 ---
